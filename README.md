@@ -1,4 +1,4 @@
-<h1 align="center">Gwynn7 👋  Matteo</h1>
+<h1 align="center">Gwynn7 ✌🏻  Matteo</h1>
 
 ###
 
